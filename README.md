@@ -5,7 +5,7 @@ VR is a technology that really makes me feel amazed for what is coming in the fu
 the place haha but trying to learn what i can until i can get an internship or a job in software.
 - 💞️ I’m looking to collaborate on a proyect involving game design, VR or anything interesting really!
 - 📫 How to reach me through email at montiverosamuel@gmail.com or in Discord Leumas#4426
-also i have a too clean for my like LinkedIn, is www.linkedin.com/in/samuel-montivero-b2526117a
+also i have a too clean for my like LinkedIn, is www.linkedin.com/in/samuel-montivero
 
 
 <!---
